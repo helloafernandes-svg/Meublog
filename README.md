@@ -1,3 +1,3 @@
 # Meublog 
-vain ser sobre unha em gel
+vai ser sobre unha em gel
 
